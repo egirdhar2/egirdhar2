@@ -8,6 +8,7 @@
 - ⚡ Fun fact **I think i am funny and messi is the GOAT**
 
 <h3 align="left">Connect with me:</h3>
+ egirdhar@uoguelph.ca
 <p align="left">
 </p>
 
